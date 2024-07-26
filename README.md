@@ -7,4 +7,4 @@ Jogando minecraft
 
 
 
-![](https://media1.tenor.com/m/iwXHwlY31ecAAAAC/yuji-itadori-suku.gif)
+![](https://media1.tenor.com/m/uFWsZfr7SWAAAAAd/ryomen-sukuna-sukuna.gif)
